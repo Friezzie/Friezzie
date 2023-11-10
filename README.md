@@ -1,7 +1,7 @@
 
 **`Friezzie (Developer/Manadgment/Creator)`**
 
-😎 I am Web3 Developer with passion for Science and Human Behavior.<br>🌱 Not your average 24 year old Spanish guy.<br>🔭 I have a University Degree on Business Manadgment and Marketing.<br>📪 Shoot me an Email or add me on LinkedIn :)
+😎 I am Web3 Developer and q  Data Science & Machine Learning engenier with passion for Science and Human Behavior.<br>🌱 Not your average 25 year old Spanish guy.<br>🔭 I have a University Degree on Business Manadgment and Marketing and i'm currently doing my Master's in Blockchain and Data Science.<br>📪 Shoot me an Email or add me on LinkedIn :)
 
 
 ## 🌐 My Socials:
